@@ -1,10 +1,12 @@
 # Play.ht Promo Codes - 80% Off Discount Code 2025
 ---
 **Play.ht Promo Codes - 80% Off Discount Code 2025**
+---
+## **[🔥 Get 90% Off Play.ht Now!](https://www.play.ht/?via=90off)**  
 
 ---
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://www.play.ht/?via=90off)
+[![Discount button](https://github.com/user-attachments/assets/96dd8486-d077-4e5b-8cd3-ae58e6fa6a02)](https://www.play.ht/?via=90off)
 ---  
 
 [![Discount button](https://github.com/user-attachments/assets/877f9d63-3103-4419-8c76-7787efdf6b50)](https://www.play.ht/?via=90off)
